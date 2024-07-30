@@ -3,4 +3,4 @@
 - 🌱 I’m currently learning javasript
 - 💞️ I’m looking to collaborate on anything
 - 📫 How to reach me saytto@posteo.com or "saytto" on discord
-- ⚡ Fun fact: I love to prorastinate
+- ⚡ Fun fact: I love to procrastinate
