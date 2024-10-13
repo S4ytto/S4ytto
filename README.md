@@ -1,5 +1,5 @@
 - 👋 Hi, I’m Saytto
-- 👀 I’m interested in making video games, static websites, cybersecurity
+- 👀 I’m interested in cybersecurity, making video games, static websites
 - 🌱 I’m currently learning too much to list
 - 💞️ I’m looking to collaborate on anything
 - 📫 How to reach me saytto@posteo.com or "saytto" on discord
